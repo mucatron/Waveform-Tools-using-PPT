@@ -11,5 +11,9 @@ This code offers an insight into how how those of us who see and feel energy can
 What great about these is that they enable questions to be answered by a community of people working largely in health and science as well as trigonometry and engineering.  
 
 The specifics of how these work are available online, in the file headers and also through asking questions about what it means to hear sound.
-
 I'd like to thank everyone who is currently working on solving crime.
+
+Update:  This final script demonstrates that the Security Experience of Twins has been put at risk since the year 2000 with the theft of investable commercial work.  The outcome of which appears to be a struggling society capturing investable work and sending it to commercialisation routes without controls or authority.
+In 2017 they appear have come back again with the same theory that the Twins and Apole are enslaved by a cult investor wheel and this code switches that theft off.  
+
+Breaking the wheel appears to be the only control left and this achieves that.  Only to be run by The Twins if they hear commands coming from imitations.
